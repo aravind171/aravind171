@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aravind171
 - 👀 I’m interested in ethical hacking
-- 🌱 I’m currently learning college 🎓 
+- 🌱 I’m currently studying college 🎓 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
